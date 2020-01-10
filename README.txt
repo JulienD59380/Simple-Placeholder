@@ -1,2 +1,2 @@
-PrÃ©sentation du projet
-ActivÃ© 2
+Préentation du projet
+Activité 2
